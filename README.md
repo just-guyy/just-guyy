@@ -1,0 +1,7 @@
+- 👋 Hi, I’m just guy, an ordinary follow coder.
+- 👀 From the childhood I was always interested in how things around me work
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate
+- 📫 To reach me, email me: burganov178@gmail.com
+- 😄 Pronouns: he/his
+- 😄 Sex/sexuality: straight male
